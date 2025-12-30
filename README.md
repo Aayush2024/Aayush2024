@@ -1,3 +1,6 @@
+# 💫 Hi 👋, I'm Aayush Umrey
+
+Email Me 👉 ✉️ **ayushumrey03@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/ayushumrey_03) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:ayushumrey03@gmail.com) 
